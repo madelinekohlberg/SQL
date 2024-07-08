@@ -5,4 +5,5 @@ In my role, I have developed a deep expertise in accessibility tools, particular
 Feel free to explore my work, and don't hesitate to reach out if you have any questions or would like to collaborate!
 
 -Madeline Kohlberg
+
 mkohlberg@outlook.com
